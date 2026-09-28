@@ -1,1 +1,0 @@
-# bbelajeva--Programmesanas-ieviesanas-un-uzturesanas-dzives-cikls-un-procesu-automatizacija-nr1
